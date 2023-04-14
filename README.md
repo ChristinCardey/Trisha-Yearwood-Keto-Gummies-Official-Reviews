@@ -1,6 +1,3 @@
-<p lang="en-GB">&nbsp;</p>
-<p align="left">&nbsp;</p>
-<p align="left">&nbsp;</p>
 <p lang="en-GB"><span style="color: #ff0000;"><span style="font-family: Caladea, serif;"><span style="font-size: large;"><strong>Official Facebook</strong></span></span></span></p>
 <p lang="en-GB"><span style="color: #ff0000;"><span style="font-family: Caladea, serif;"><span style="font-size: medium;"><strong><a href="https://www.facebook.com/people/Trisha-Yearwood-Keto-Gummies-Shark-Tank-Reviews/100091933113372/"><span style="font-size: large;">https://www.facebook.com/people/Trisha-Yearwood-Keto-Gummies-Shark-Tank-Reviews/100091933113372/</span></a></strong></span></span></span></p>
 <p lang="en-GB"><span style="color: #ff0000;"><span style="font-family: Caladea, serif;"><span style="font-size: medium;"><strong><a href="https://www.facebook.com/TrishaYearwoodACVKetoGummies/"><span style="font-size: large;">https://www.facebook.com/TrishaYearwoodACVKetoGummies/</span></a></strong></span></span></span></p>
